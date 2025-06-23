@@ -37,7 +37,7 @@
 
 点击访问：<a href="https://hl428.pages.dev/">网爆黑料吃瓜</a>
 
-点击访问：<a href="https://hl451.pages.dev/">吃瓜爆料</a>
+点击访问：<a href="https://hl451.pages.dev/">黑料网</a>
 
 点击访问：<a href="https://hl454.pages.dev/">五一吃瓜网站官网入口</a>
 
